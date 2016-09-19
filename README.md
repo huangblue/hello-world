@@ -1,1 +1,1 @@
-![111111](http://www.baidu.com/img/bdlogo.gif “中中”)  
+![](https://github.com/guodongxiaren/ImageCache/raw/master/Logo/foryou.gif)  
